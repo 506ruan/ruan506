@@ -2,6 +2,4 @@
 - 👀 I’m interested in carros 
 - 🌱 I’m currently learning inglês
 - 📫 How to reach me https://github.com/506ruan/506ruan.git
-
--  ![](tenor.com/pt-BR/view/porsche-gif-7197655)
-  
+  ![](https://media1.tenor.com/m/hzOuZQF2Wr8AAAAC/porsche.gif)
