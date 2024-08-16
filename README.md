@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @506ruan
 - 👀 I’m interested in carros 
 - 🌱 I’m currently learning inglês
-- 📫 How to reach me @everton_ruan_506
+- 📫 How to reach me https://github.com/506ruan/506ruan.git
